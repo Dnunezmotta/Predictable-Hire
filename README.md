@@ -1,0 +1,1 @@
+Que somos? Somos un copiloto con IA que acompaña al talento profesional en todo el proceso de búsqueda de su trabajo ideal: desde la búsqueda de oportunidades, hasta el coaching para las entrevistas y la negociación salarial.
